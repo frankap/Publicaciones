@@ -1,2 +1,2 @@
 # Publicaciones
-Conjunto de publicaciones
+Conjunto de publicaciones de Frank Arteaga Pupo
